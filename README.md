@@ -1,0 +1,1 @@
+why not keep a diary?
